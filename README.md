@@ -1,2 +1,2 @@
-# https-alithampan.github.io/lail-commision/
+# https-alithampan.github.io/lail-commisions/
 Websitenya laila
